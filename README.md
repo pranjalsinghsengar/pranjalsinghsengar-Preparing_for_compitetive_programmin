@@ -1,1 +1,1 @@
-# pranjalsinghsengar-Preparing_for_compitetive_programmin
+# pranjalsinghsengar-Preparing_for_compitetive_programming
